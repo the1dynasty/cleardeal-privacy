@@ -49,4 +49,3 @@ We may update this Privacy Policy from time to time. You are advised to review t
 If you have questions or comments about this Privacy Policy, please contact us at:
 
 **the1dynasty.android@gmail.com**
-*(Replace this with your actual email address if different)*
